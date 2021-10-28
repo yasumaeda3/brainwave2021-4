@@ -5,6 +5,6 @@ brainwave2021-4
 
 デジタルアート　藤田 Naokikiki
 
-応用プロジェクト 光藤　
+応用プロジェクト 光藤　Ryoxxx
 　
 応用プロジェクト 水野 yrmlily
